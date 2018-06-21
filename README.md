@@ -11,3 +11,9 @@ For Windows, Mac, and Linux!!!
 
 https://kawaiikitsunelover645.itch.io/sounds-of-the-night
 
+# Screenshots
+![hheeyy wanna go into that bathroom overthere??? nya](https://img.itch.zone/aW1hZ2UvMjcwNjM3LzEzMDc3NTgucG5n/794x1000/KcWuwd.png)
+![wait ur atheist](https://img.itch.zone/aW1hZ2UvMjcwNjM3LzEzMDc3NTYucG5n/794x1000/%2BrdoeL.png)
+![... nothin presoneil....kidz....yea?? anatatachis have no idea.. no idea.... soo ughh](https://img.itch.zone/aW1hZ2UvMjcwNjM3LzEzMDc3NTcucG5n/794x1000/wbbkzc.png)
+
+
